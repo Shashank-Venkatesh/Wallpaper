@@ -1,2 +1,0 @@
-# Wallpaper
-Collection of Wallpaper
